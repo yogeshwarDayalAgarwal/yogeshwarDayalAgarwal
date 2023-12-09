@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **yogeshmario102@gmail.com**
 
-- ⚡ Fun fact **I am good at chess, badminton and football. I am also a heavy anime freak.**
+- ⚡ Fun fact **I seldom play chess, badminton.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
